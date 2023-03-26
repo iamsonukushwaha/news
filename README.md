@@ -1,6 +1,10 @@
 ## All India News
 
-<br><br><br><br>
+<br><br>
+
+https://singlebucks.blogspot.com/2020/02/news.html
+
+<br><br>
 
 
 **&copy; [Sonu Kumar Kushwaha](https://flyingsonu122.github.io)**
